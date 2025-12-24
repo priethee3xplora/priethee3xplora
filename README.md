@@ -1,5 +1,5 @@
-# 💫 About Me:
-Prie |Software Developer in progress<br>Building Projects. Learning fast. Staying curios. too cool
+ # 💫 About Me:
+Prie |Software Developer in progress<br>Building Projects. Learning fast. Staying curious. Too cool
 
 
 ## 🌐 Socials:
